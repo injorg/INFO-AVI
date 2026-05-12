@@ -2,7 +2,7 @@ A very complex mind
 
 
 
-(Informant = Janith)
+(Informant = Anonymous)
 
 You tube Channel = "https://www.youtube.com/@asmidhingra714"
 
@@ -24,7 +24,7 @@ Life outside : Normal
 
 Talk topics : Normal (Average for the age itself)
 
-Chat with Janith: Abnormal (Collecting info of other using him as an instrument for this work : Motive : Unknown)
+Chat with Anonymous: Abnormal (Collecting info of other using him as an instrument for this work : Motive : Unknown)
 
 &#x20;   Used Him to get info of almost every boy in the class she talks to
 
@@ -50,7 +50,7 @@ Conversation included 30 minutes of normal talk the time period is as followed
 
 Another 15 Minute talk
 
-2nd Abnormal question referring Janith if he thought Asmi as a brother or a friend or anything else.
+2nd Abnormal question referring Anonymous if he thought Asmi as a brother or a friend or anything else.
 
 
 
@@ -88,7 +88,7 @@ She has the feeling of the "Main character"(According to the informant) and thin
 
 
 
-She thinks all the boys except deyaan Janith and Keshri are immature and does not talk to them.
+She thinks all the boys except deyaan Anonymous and Keshri are immature and does not talk to them.
 
 
 
